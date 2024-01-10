@@ -1,3 +1,3 @@
 # BTC_ETF
 
-Grabbed this before theu deleted it :)
+Grabbed this before SEC deleted it :)
